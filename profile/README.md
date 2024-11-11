@@ -8,12 +8,13 @@ FR Legends is a mobile racing game primarily focused on drifting. Released by TW
 
 The game’s cel-shaded graphics and fun physics make it a unique choice in the mobile racing genre, blending arcade-style play with more realistic drifting experiences.
 
+## Download Fr Legends MOD APK Here.
+> ➡️➡️➡️**Link -** <a href="https://nherc.in/fr-legends/"> **Fr Legends Download** </a> ⬅️⬅️⬅️
+
 ## Gameplay Mechanics
 
 The gameplay in FR Legends revolves around **drifting**, which is the art of controlling a car in a controlled slide around a corner. Players must execute precise timing, throttle control, and steering to successfully drift through various tracks. The game also features a scoring system based on how well players drift around corners, with points awarded for proximity to walls and obstacles, as well as the angle and speed of the drift.
 
-## Download Fr Legends MOD APK Here.
-➡️➡️➡️**Link -** <a href="https://nherc.in/fr-legends/"> Fr Legends Download </a> ⬅️⬅️⬅️
 
 FR Legends features different game modes, including:
 - **Solo Mode**: Practice drifting on a variety of tracks.
